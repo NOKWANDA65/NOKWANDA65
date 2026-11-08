@@ -6,7 +6,7 @@
 
 *Building practical digital solutions through software, analytics and business insight.*
 
-[Portfolio](https://[YOUR-USERNAME].github.io/) · [LinkedIn](https://www.linkedin.com/in/[YOUR-LINKEDIN]) · [Email](mailto:[YOUR-EMAIL])
+[Portfolio](https://[NOKWANDA65].github.io/) · [LinkedIn](https://www.linkedin.com/in/nokwanda-ndlela-067827255?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) · [Email](mailto:NOKWANDANDLELA65@GMAIL.COM)
 
 </div>
 
